@@ -3,7 +3,7 @@
 
 ## Overview
 This document provides a summary of the key statistics and industry investments from the Shark Tank seasons spanning 2021 to 2024. It includes information on the number of participating startups, total revenue, deal amounts, presenter investments, and industry contributions.
-![Alt text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FShark_Tank_India&psig=AOvVaw2LkIitBuQDb4fTLiq_992M&ust=1721903237626000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCMjbs8i7v4cDFQAAAAAdAAAAABAE)
+![Alt text](https://upload.wikimedia.org/wikipedia/en/thumb/2/2f/Shark_Tank_India.jpg/220px-Shark_Tank_India.jpg)
 
 ## Key Statistics
 
